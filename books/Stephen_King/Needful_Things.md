@@ -1,0 +1,1 @@
+A mysterious shop opens in a sleepy Maine town, selling his wares to an eager community. The local police chief suspects the entrepeneur isn't what he seems, but dark forces far worse than any he could suspect whip the village into a frenzy, reaching a fever pitch that threatens to tear the place apart. 

@@ -1,0 +1,1 @@
+A man brings his family to a resort ski lodge for the winter, acting as caretaker while he writes his novel. The hotel's sinister history has other plans for the Torrences. 

@@ -1,0 +1,1 @@
+A malevolent force haunts a working-class town in Maine, where kids mysteriously disappear once every twenty five years. In 1955, a group of misfits called the Losers Club face off against the evil. In 1985, as adults, they must band together once again to try and save their hometown, and themselves. 
